@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Chouchou05118
-- ⚡ Please check my portfolio with: https://drive.google.com/file/d/1_YPVq4BeBg7CkVWUlqlN03b3idQ8jJ6m/view?usp=sharing<img width="310" height="18" alt="image" src="https://github.com/user-attachments/assets/d7d16fc4-a15f-4c68-951e-5d8e6a033e97" />
+- ⚡ Please check my portfolio with: https://drive.google.com/file/d/1_YPVq4BeBg7CkVWUlqlN03b3idQ8jJ6m/view?usp=sharing
 
 
 <!---
